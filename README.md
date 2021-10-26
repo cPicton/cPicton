@@ -1,6 +1,6 @@
 ### Hi there 👋
 My name is Chris Picton Kipkorir.
-![alt text](https://i.pinimg.com/236x/db/74/24/db74244c3472ffba7893cf9614ded707.jpg)
+![alt text](https://i.pinimg.com/236x/d5/7a/5e/d57a5e7a824129f11fea640817232bc2.jpg)
 
 
 - 🔭 I’m currently working on the next big thing,
